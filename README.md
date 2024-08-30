@@ -14,4 +14,4 @@
 
 ![](https://media1.tenor.com/m/HOXbmhUTOZMAAAAd/pablo-vegetti-vegetti.gif)
 
-![](https://media1.tenor.com/m/_0TzMJZezjkAAAAd/caze-dan%C3%A7ando-caze.gif)
+![](https://media1.tenor.com/m/OONSl5xQ6XQAAAAd/gigante-da-colina-vasco.gif)
