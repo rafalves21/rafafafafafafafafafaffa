@@ -22,4 +22,4 @@
 
 ![.](https://media.tenor.com/VM68DcHK6jIAAAAM/edmundo.gif)
 
-![.](https://github.com/user-attachments/assets/41c92ce0-9d7e-4090-b049-9db78bbdb8de)
+![.](https://github.com/user-attachments/assets/41c92ce0-9d7e-4090-b049-9db78bbdb8de.gif)
